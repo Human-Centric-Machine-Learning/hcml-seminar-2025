@@ -42,6 +42,14 @@ Deadline: 31-10-2025
 
 Acceptance notification for the course will be sent by email on or before 06-11-2025.
 
+## Topic selection
+
+After receiving an email of acceptance, please rank your preferred topics by completing this [form](https://prettyform.addxt.com/a/form/vf/1FAIpQLScm5-d1hQWNzSi8Zk18Y2ELdyMpF_oQhw2EVDUJnWU61SsY8g)
+
+Make sure you rank all available topics based on your preferences by 27-11-2025.
+
+Assignment of papers will be notified on 04-12-2025.
+
 ## Location:
 
  - Kickoff meeting: 21-10-2025 Tuesday, 15:00 - 16:00
