@@ -50,9 +50,9 @@ Make sure you rank all available topics based on your preferences by 27-11-2025.
 
 Assignment of papers will be notified on 04-12-2025.
 
-## Paper assignment
+## Paper assignment and presentation schedule
 
-The paper assignments are available [here](https://docs.google.com/spreadsheets/d/1AJko9A3mq8AL9tVUtz20aiG6KSGNmTpd5k5a-BsQSr4/edit?usp=sharing).
+The paper assignments and presentation schedule are available [here](https://docs.google.com/spreadsheets/d/1AJko9A3mq8AL9tVUtz20aiG6KSGNmTpd5k5a-BsQSr4/edit?usp=sharing).
 
 ## Location:
 
